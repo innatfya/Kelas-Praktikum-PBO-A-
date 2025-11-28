@@ -1,2 +1,2 @@
-### don't steal, you bitch
+### don't you dare to steal what's mine, you assholes📸
 ---

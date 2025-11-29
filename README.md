@@ -1,3 +1,5 @@
 ### don't you dare steal what's mine, you assholes📸
 ---
-![jaemin-explaining-nct-dream-glitch-mode](https://github.com/user-attachments/assets/f0608e8f-157b-4fbc-9dfd-9db0b2a134a9)
+<p align="center">
+  <img width="300" height="225" alt="jaem" src="https://github.com/user-attachments/assets/c650bab7-899f-4418-89de-0c9f2cff6640" />
+</p>
